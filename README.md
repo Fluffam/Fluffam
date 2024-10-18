@@ -1,9 +1,5 @@
-- meowmeow my name is Liam 
-- uhmm artist el oh el my name is Fluffam on every app
-- I speak Polish and English yay
-- with my bab or infront of bakery whisper to talk to me el oh el
-- he/him
-- emm fun fact I'm deadly scared of needles and doctors 
+
+uhmm Liam he/him yay polish and English 
 
 <!---
 Fluffam/Fluffam is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
