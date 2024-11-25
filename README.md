@@ -1,7 +1,2 @@
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fhellboys.tumblr.com%2Fpost%2F733813392054386688%2Fcostas-mandylor-as-mark-hoffman-in-saw-3d-2010&psig=AOvVaw3Mn1KS0tVu9s_4jhak54hk&ust=1732641116058000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCPCf4qX994kDFQAAAAAdAAAAABAE
 
-uhmm Liam he/him yay polish and English 
-
-<!---
-Fluffam/Fluffam is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
